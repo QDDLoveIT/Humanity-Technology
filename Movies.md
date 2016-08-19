@@ -20,4 +20,4 @@
 
 - 天注定
 
-### WQLovely
+### Your brother Qiang
